@@ -1,1 +1,1 @@
-![TestImage](https://raw.githubusercontent.com/MrARM/MrARM/master/1643536_pastedImage_0.png)
+![Shut up and take my money!](https://raw.githubusercontent.com/MrARM/MrARM/master/eyestore.gif)
